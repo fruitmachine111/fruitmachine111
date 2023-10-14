@@ -1,4 +1,4 @@
-### Hello there 👋Software Dev- Earthlings
+### Hello there Earthlings!!!
 
 In my search for the truest forms of truth, I am on a quest for the symphonies that touch the soul, the art that shakes the spirit, and the technologies that shape tomorrow, —akin to the School of Athens or the masterpieces of Michelangelo, songs of Sinatra or love tunes of Herb Alpert.
 
