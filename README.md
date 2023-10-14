@@ -7,3 +7,5 @@ I am drawn to fashion that isn't just attired but a statement of existential exp
 My pursuit of life's most authentic and meaningful expressions has led me down various avenues. I'm currently navigating the disruptive waves of Fintech, holistic and sustainable living, esotericism, exploring the essence of true masculinity, and seeking spirituality that transcends dogma—all while striving to embody the wisdom of living in the 'NOW'.
 
 As nature is everchanging, revealing its divine mysteries, I remain ever open to what the source has next on the agenda for me. If you resonate with this quest for the purest form of reality, let's connect. The universe, in its ceaseless evolution, has much to reveal .
+
+[![s GitHub stats](https://github-readme-stats.vercel.app/api?username=fruitmachine111)](https://github.com/anuraghazra/github-readme-stats)
